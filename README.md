@@ -1,0 +1,2 @@
+# s-katty
+Kattar hindu
